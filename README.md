@@ -1,5 +1,6 @@
 ## Hi there 👋
-![image](https://github.com/ShkulovEgor/ShkulovEgor/assets/82025255/8698548b-e2a2-4f38-9c49-5cc8761e18c2)
+![image](https://github.com/ShkulovEgor/ShkulovEgor/assets/82025255/8698548b-e2a2-4f38-9c49-5cc8761e18c2) ![image](https://github.com/ShkulovEgor/ShkulovEgor/assets/82025255/25addd8f-8604-4353-be47-360718db1013)
+
 
 
 
