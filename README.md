@@ -1,4 +1,7 @@
 ## Hi there 👋
+![image](https://github.com/ShkulovEgor/ShkulovEgor/assets/82025255/8698548b-e2a2-4f38-9c49-5cc8761e18c2)
+
+
 
 <!--
 **ShkulovEgor/ShkulovEgor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
